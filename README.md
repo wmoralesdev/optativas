@@ -1,4 +1,4 @@
-# Optative activities
+# Optative activities (March 17th - March 23rd)
 
 - See this [link](https://view.genial.ly/604ee657f453d60d0b3df075/interactive-content-optativo-semana-2) with optative activities of this week.
 - Select one to do with your clan partner
